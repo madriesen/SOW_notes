@@ -22,3 +22,8 @@ Les 3
 - Ezechiel 47:1-12
   - Openbaringen 22:2
 - Genesis 2:10-14
+
+Les 4
+
+- 2 samuel 6:1-11
+- 2 samuel 6:12-16
